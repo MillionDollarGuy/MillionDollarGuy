@@ -1,11 +1,11 @@
 - 👋 Hi, I’m @MillionDollarGuy
   
-(っ◔◡◔)っ
-🎓STUDENT | Rohan Das
-🏀 Sports Enthusiast | Rollball Player
-📚 Studying at SIS
-🔥 Passionate about sports and learning ♥
-🔗rohandas.carrd.co
+-(っ◔◡◔)っ
+-🎓STUDENT | Rohan Das
+-🏀 Sports Enthusiast | Rollball Player
+-📚 Studying at SIS
+-🔥 Passionate about sports and learning ♥
+-🔗rohandas.carrd.co
 
 
 <!---
