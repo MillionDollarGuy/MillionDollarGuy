@@ -13,19 +13,19 @@ I'm currently in high school and super passionate about **acting, media, and tec
 ---
 
 ### 📺 **Favorite Movies & TV Shows:**
-- **Movies:** Inception, Interstellar, The Dark Knight, The Pursuit of Happyness
-- **TV Shows:** Breaking Bad, Stranger Things, Sherlock, Peaky Blinders
+- **Movies:** Inception, Yeh Jawaani Hai Deewani, MCU Franchise, To All The Boys I Have Ever Loved Before
+- **TV Shows:** FRIENDS, How I Met Your Mother, Psych, Loki
 
 ---
 
 ### 🎵 **Favorite Music:**
-- **Artists I Love:** Coldplay, Imagine Dragons, The Weeknd, Linkin Park
-- **Songs:** Fix You, Believer, Blinding Lights, Numb
+- **Artists I Love:** Bruno Mars, Ed Sheeran, Arjit Singh, Atif Aslam, Coldplay, Justin Beiber
+- **Songs:** blue, Count On Me, I Like Me Better, Aankhein Khuli, Phtograph, Night Changes
 
 ---
 
 ### 📫 **Connect with Me:**
-- 🌐 **Website:** [**rohandas_unscripted_**](https://yourwebsite.com)
+- 🌐 **Website:** [**rohandas_unscripted_**](https://sites.google.com/view/rohandas1254/)
 - 📸 **Instagram:** [**@rohandas_unscripted_**](https://www.instagram.com/rohandas_unscripted_)
 - 🖥️ **GitHub:** [**MillionDollarGuy**](https://github.com/MillionDollarGuy)
 
